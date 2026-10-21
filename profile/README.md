@@ -1,4 +1,4 @@
-# Channel Wise 🚀
+# Channel Wise
 
 **Helping YouTube creators make smarter growth decisions with AI.**
 
